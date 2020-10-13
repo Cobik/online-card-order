@@ -1,1 +1,1 @@
-There will be cool project soon.
+here will be a cool project soon.
